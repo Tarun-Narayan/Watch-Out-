@@ -3,7 +3,11 @@
 
 
 Gameplay:
-[Github.mov.zip](https://github.com/user-attachments/files/18087119/Github.mov.zip)
+
+
+
+https://github.com/user-attachments/assets/7b865d9c-1aab-454d-b5be-38a27f914e73
+
 
 
 # About
